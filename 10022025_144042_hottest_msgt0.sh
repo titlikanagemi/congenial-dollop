@@ -1,0 +1,1 @@
+Frisbee got its name from William Russel Frisbee, who was a pie baker. He used to sell his pies in a thin tin pan, which had Frisbee written on it. When Walter Frederick Morrison thought of the idea of making saucer like disks to play catch, he visited the campus of Yale and noticed people there were using the pie pan to play catch so he therefore renamed his invention to Frisbee
